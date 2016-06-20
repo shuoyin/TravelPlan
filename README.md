@@ -31,7 +31,13 @@
   第二天早上可坐小火车上山看日出，下午乘大巴前往日月潭。<br />
   主要参考了这两篇攻略：[从台北到阿里山两天一夜的往返线路](http://www.mafengwo.cn/wenda/detail-1386435.html)以及
   [想从台北去阿里山和日月潭。时间和交通怎么样安排比较好](http://www.mafengwo.cn/wenda/detail-1201100.html)<br />
+####阿里山往返日月潭
+  参考链接：http://www.go2tw.cn/article/show/273.html<br />
+####台北到日月潭
+  从台北坐高铁到台中，台中高铁站也有班车到日月潭，坐台湾好行南投客运到日月潭。台北到台中高铁约1小时，再由台中高铁站搭乘南投客运到日月潭约1个半小时，1小时1班车。总共大约2个半小时。从日月潭回台北的话可以在游客中心搭车到台中高铁站，再搭高铁回台北是最省时最简单的方法，08:40起每隔1小时有1班次。参考链接：[台中往返日月潭巴士时刻表](http://www.ntbus.com.tw/tour-sml.html)<br />
 ##住宿
 
 ##其他攻略
 台北攻略：http://www.mafengwo.cn/localdeals/mdd_topic_270/?cid=1010608 <br />
+高雄攻略：http://www.mafengwo.cn/i/1013013.html<br />
+垦丁攻略：http://www.mafengwo.cn/i/1056044.html<br />
